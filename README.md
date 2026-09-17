@@ -5,7 +5,7 @@
 📍 Lucknow, India  
 💼 Java Full Stack Developer at Tata Consultancy Services  
 📧 ektasahu0812@gmail.com  
-🔗 [LinkedIn](https://linkedin.com/in/ekta-sahu-0812dec)
+🔗 [LinkedIn](https://www.linkedin.com/in/ekta-sahu/)
 
 ---
 
